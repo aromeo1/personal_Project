@@ -1,1 +1,1 @@
-# personal_Project
+Working on different things to show my abilites and skills I've learned along the way.
